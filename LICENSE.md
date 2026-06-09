@@ -1,4 +1,4 @@
-# 
+# Exclusive leverage trading bot presets for Mac OS | Updated leverage trading bot presets for PC Windows. Featuring blockchain indexing and momentum analysis — optimized for maximum performance on every platform.
 
 
 
